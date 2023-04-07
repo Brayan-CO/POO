@@ -1,2 +1,0 @@
-#lkcscñls
-#ax añxa
